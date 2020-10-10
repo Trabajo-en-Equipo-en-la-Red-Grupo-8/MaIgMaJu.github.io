@@ -1,1 +1,0 @@
-# MaIgMaJu.github.io
